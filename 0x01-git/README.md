@@ -1,1 +1,1 @@
-0x01-git. up to date
+Hard and better days are coming.
